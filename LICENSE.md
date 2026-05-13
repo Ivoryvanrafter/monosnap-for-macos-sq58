@@ -1,4 +1,4 @@
-
+Get the ultimate Monosnap for macOS extension with advanced Extension for Monosnap for macOS - hotkey-customization and custom-actions. Featuring hotkey-customization and
 
 
 
